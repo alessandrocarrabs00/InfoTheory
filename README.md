@@ -1,107 +1,55 @@
-Mo me lavo po me vesto e scengo
-M'hê menato 'int'a na tarantella
-Me credevo s'era 'nnammurata
-Ma era na femmena 'e guaje
-Nn'saccio manco quanta sorde tengo
-Loro stanno fore ô Vico Nuovo
-Nun m'hê ditto ca se spezza 'o core a te
-Po nun se pò apparà
+**Titolo: "Storie d’ammore senza confini"**  
 
+*(Strofa 1)*  
+A Perugia 'na guagliona gentile,  
+cu 'e ricci neri, 'na faccia sottile,  
+me guarda e ride, 'o core s'accende,  
+'sta vita 'e passione nun se comprende.  
 
-Mo me lavo po me vesto e scengo
-M'hê menato 'int'a na tarantella
-Me credevo s'era 'nnammurata
-Ma era na femmena 'e guaje
-Nn'saccio manco quanta sorde tengo
-Loro stanno fore ô Vico Nuovo
-Nun m'hê ditto ca se spezza 'o core a te
-Po nun se pò apparà
+*(Ritornello)*  
+Storie d’ammore senza confini,  
+'na ragazza 'e Perugia, 'e sogni vicini,  
+na’ persiana 'e stelle, 'nu cielo lontano,  
+e 'o core 'e Torino, 'na rosa 'int' 'a mano.  
 
+*(Strofa 2)*  
+A Torino 'a vita corre veloce,  
+tra 'e luci 'e 'a città, 'na voce dolce,  
+me parla 'e futuro, 'e viaggi lontani,  
+int' 'o core mio, 'a tengo 'e 'e mani.  
 
-Oh-oh oh-oh oh-oh
-M'hê menato 'int'a na tarantella
-Oh-oh oh-oh oh-oh
-Mo me lavo po me vesto e scengo
-Oh-oh oh-oh oh-oh
-Nn'saccio manco quanta sorde tengo
-Oh-oh oh-oh oh-oh
-'
-Sta tarantella nun se pò apparà
+*(Ritornello)*  
+Storie d’ammore senza confini,  
+'na ragazza 'e Perugia, 'e sogni vicini,  
+na’ persiana 'e stelle, 'nu cielo lontano,  
+e 'o core 'e Torino, 'na rosa 'int' 'a mano.  
 
-Enzo Donghito non le mando a dire
-Me lavo po me vesto e scengo
-Fra', me vesto e scengo
-No, non sanno che vuol dire
-A stá diuno tutt''e sere overo 'ncopp'a Dio
-A me ca maje nisciuno m'ha intiso
-Manco 'e sante mieje 'n paraviso, eh eh
-Nn'so' nisciuno mo ca m'hê appiso
-'
-O core mio, fratè, l'hanno acciso
-Fra', songo je, nun cagno pe nisciuno pecché so' fatto accusi
-Fra', si parlano male 'e me, chisti ccà ponno murì
-Ccà me sanno pure 'e prete, 'o diceno dint'ê TG
-Bell'e bbuono na stesa d'ammore, duje core se sparano 'ncuollo
-Po se fa 'a folla
-Addure 'e tarantelle
-Forse è chello ca te fa stá fore
-Sî n'ata cosa
-Nu buon guaglione nun te serve
-Enzo Dong
+*(Strofa 3)*  
+Due guaglioni 'e Alessandria 'o sanno,  
+ca 'a vita 'nu gioco, ma 'o core è inganno.  
+Chiacchiere 'int' 'a piazza, 'e risate sincere,  
+ma 'o destino 'a volte nun tene barriere.  
 
+*(Ritornello)*  
+Storie d’ammore senza confini,  
+Alessandria, Perugia, Torino, destini,  
+'na persiana 'e luce, 'nu cielo distante,  
+ma 'o core 'e tutt’e, è cosa importante.  
 
-Mo me lavo po me vesto e scengo
-M'hê menato 'int'a na tarantella
-Me credevo s'era 'nnammurata
-Ma era na femmena 'e guaje
-Nn'saccio manco quanta sorde tengo
-Loro stanno fore ô Vico Nuovo
-Nun m'hê ditto ca se spezza 'o core a te
-Po nun se pò apparà
+*(Bridge)*  
+E 'o mondo gira, 'e stelle 'int' 'o cielo,  
+ognuno cu 'a strada, ognuno cu 'o velo.  
+Ma si t’affacci int’ 'o core 'e 'a gente,  
+trovi l’ammore, semp' presente.  
 
-Oh-oh oh-oh oh-oh
-M'hê menato 'int'a na tarantella
-Oh-oh oh-oh oh-oh
-Mo me lavo po me vesto e scengo
-Oh-oh oh-oh oh-oh
-Nn'saccio manco quanta sorde tengo
-Oh-oh oh-oh oh-oh
-'
-Sta tarantella nun se pò apparà
+*(Ritornello Finale)*  
+Storie d’ammore senza confini,  
+'na ragazza 'e Perugia, 'e sogni vicini,  
+na’ persiana 'e stelle, 'nu cielo lontano,  
+e 'o core 'e Torino, 'na rosa 'int' 'a mano.  
 
-
-Gesù Crì, tu accusi saje ca a me me faje murì
-Nn'me fido 'e nisciuno, pure 'e criature ten'n 'a cazzimma
-Nn'saccio manco che vvuò, si me tiene sulo pe sport (Uoh-oh-oh)
-Dice sicuro me vuò, ma sicuro ccà è sulo 'a morte (Uoh-oh-oh-oh-oh)
-Enzo Dong Donghito lo guardi allo stadio
-Nel quartiere mi fermano come un neomelodico
-Storie d'amore che finiscono nel tragico
-Napoli violenta, resti bloccato nel traffico
-'
-Sti storie so' vietate, fra', p''e debbole 'e core
-Pe nuje ca simmo nato ccà 'sta robba nun ce tocca
-'
-Sti ccose l'hê viste sulo dint'â televisione
-Picciò dâ casa tu nun scinne cchiù
-Enzo Dong
-
-
-Mo me lavo po me vesto e scengo
-M'hê menato 'int'a na tarantella
-Me credevo s'era 'nnammurata
-Ma era na femmena 'e guaje
-Nn'saccio manco quanta sorde tengo
-Loro stanno fore ô Vico Nuovo
-Nun m'hê ditto ca se spezza 'o core a te
-Po nun se pò apparà
-
-Oh-oh oh-oh oh-oh
-M'hê menato 'int'a na tarantella
-Oh-oh oh-oh oh-oh
-Mo me lavo po me vesto e scengo
-Oh-oh oh-oh oh-oh
-Nn'saccio manco quanta sorde tengo
-Oh-oh oh-oh oh-oh
-'
-Sta tarantella nun se pò apparà
+*(Outro)*  
+A Alessandria, Perugia, e Torino,  
+ammore senza limiti, 'o core vicino.  
+Persiana 'e luce, 'o cielo 'nfinito,  
+'sta storia 'e passione, 'nu canto pulito.  
