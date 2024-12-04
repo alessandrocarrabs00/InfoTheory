@@ -20,7 +20,7 @@ fprintf("Entropy of problem 1:\n")
 lambda_values = [1, 2, 3];
 for lambda = lambda_values
     H1 = entropy1(lambda);
-    fprintf('Lambda = %.1f, Entropy = %.4f\n', lambda, H);
+    fprintf('Lambda = %.1f, Entropy = %.4f\n', lambda, H1);
 end
 
 
